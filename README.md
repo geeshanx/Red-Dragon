@@ -4,19 +4,19 @@
 <img src="https://i.ibb.co/CwffZ61/20220605-104552.jpg" alt="nz" width="350"/>
 </p>
 
-## 𝙍𝙀𝘿╺ 𝘿𝙍𝘼𝙂𝙊𝙉 -𝗕𝗢𝗧࿐   Version 12.0
+## MR සමයං😹 -𝗕𝗢𝗧࿐   Version 12.0
 
-## [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=F33A6A&lines=𝐖𝐞𝐥𝐜𝐨𝐦𝐞+𝐓𝐨+𝙍𝙀𝘿╺+𝘿𝙍𝘼𝙂𝙊𝙉+-+𝗕𝗢𝗧.;𝙿𝙾𝚆𝙴𝚁𝙳+𝙱𝚈:+𝚁𝙴𝙳+𝙳𝚁𝙰𝙶𝙾𝙽+𝚃𝙴𝙰𝙼;ℂ𝕣𝕖𝕒𝕥𝕖𝕕+𝕓𝕪:+𝙆.𝙋𝙧𝙖𝙗𝙝𝙖𝙨𝙝𝙖;𝐌𝐑:+☬𝔻𝔸ℝ𝕂༒ℕ𝕀𝕋ℝ𝕆࿐;💕ඉතිං+කොහොමද🙃;😁මොකද+කරන්නෙ🌹)](https://git.io/typing-svg)
+## [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=F33A6A&lines=𝐖𝐞𝐥𝐜𝐨𝐦𝐞+𝐓𝐨+𝙍𝙀𝘿╺+𝘿𝙍𝘼𝙂𝙊𝙉+-+𝗕𝗢𝗧.;𝙿𝙾𝚆𝙴𝚁𝙳+𝙱𝚈:+𝚁𝙴𝙳+𝙳𝚁𝙰𝙶𝙾𝙽+𝚃𝙴𝙰𝙼;ℂ𝕣𝕖𝕒𝕥𝕖𝕕+𝕓𝕪:+kavindu geeshan 💕ඉතිං+කොහොමද🙃;😁මොකද+කරන්නෙ🌹)](https://git.io/typing-svg)
 
 LATEST VERSION (2022-08-20) ([Whatsapp can't see messages]) [Fixed ]
 
 > [🔄Please Follow Me🤭](https://github.com/prabhasha2006)
 
-<img src="./Android/database/K.Prabhasha-1.gif" alt="Loading..." width="310"/>
+<img src="./Android/database/ MR සමයං😹-1.gif" alt="Loading..." width="310"/>
 
-> Image Designed By  ==(Dineth Indusara)== RED DRAGON TEAM
+> Image Designed By  ==( MR සමයං😹)==  MR සමයං😹
 
-> Created By ==(Kumuthu Prabhasha)== RED DRAGON TEAM
+> Created By ==(Kavindu Geeshan)==  MR සමයං😹
 
 
 <p align="center">
@@ -73,7 +73,7 @@ Recommended WhatsApp👇
 
 ##
 
-> [SUPPORT GROUP](https://chat.whatsapp.com/I1v5ZTJeFjZ9x5LzG3qPHU)
+> [SUPPORT GROUP](https://chat.whatsapp.com/IJ85mWV6kpZAfTaOXlwAPR)
 
 <b><details><summary>𝗛𝗼𝘄 𝗧𝗼 𝗠𝗮𝗸𝗲?</summary>
 
@@ -97,7 +97,7 @@ Recommended WhatsApp👇
 
 ## ```Connect With Me```
 <p align="center">
-<a href="https://wa.me/380944814219"><img src="https://www.svgrepo.com/show/122874/whatsapp.svg" width="100"/>
+<a href="https://wa.me/781944805"><img src="https://www.svgrepo.com/show/122874/whatsapp.svg" width="100"/>
 </p>
 
 </details>
@@ -106,7 +106,7 @@ Recommended WhatsApp👇
 <img src="https://github.com/Platane/snk/raw/output/github-contribution-grid-snake.svg" alt="nz" width="700"/>
 </p>
 
-## 𝐌𝐑: ☬𝔻𝔸ℝ𝕂༒ℕ𝕀𝕋ℝ𝕆࿐
+## 𝐌𝐑:  MR සමයං😹
 
 
 
